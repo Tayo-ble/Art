@@ -1,7 +1,7 @@
 <img width="1136" height="640" alt="image" src="https://github.com/user-attachments/assets/d25c5538-b622-429c-a958-620c3a98e2b0" />
 
   HELLO!!
-I'm Tayo, a Vietnamese people (so my English isn't very good)
+Just call me Tayo, a Vietnamese people (so my English isn't very good)
 Here is my atabook : https://tayo.atabook.org/
 # Some art by me...
 <img width="703" height="703" alt="image" src="https://github.com/user-attachments/assets/8345fb06-bf2c-4998-88f9-f92fe8d59b2e" />
